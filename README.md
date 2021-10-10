@@ -9,7 +9,7 @@
         Japanese (For anime watching)
         Fitness (To keep myself healty _(√ ζ ε:)_)
         
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ... make the world a better place...?
 - 📫 Please reach me via email 
         qianyouji@outlook.com
 
